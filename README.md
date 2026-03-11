@@ -123,7 +123,7 @@ I am currently exploring:
 📫 Connect With Me
 
 📧 Email: bsarathy303@gmail.com
-💼 LinkedIn: (Add your LinkedIn link here)
+💼 LinkedIn: https://www.linkedin.com/in/sarathy-b-514101313/
 
 ---
 
